@@ -1,5 +1,5 @@
  i'am create an annual report for Vrinda Store in Excel for 2024, here's a template structure you could follow.
- Let me know if you'd like me to prepare a specific spreadsheet for  practice perpose.
+ Let me know if you'd like me to prepare a specific spreadsheet for you in   practice perpose.
 
 Suggested Excel Sheet Layout for Annual Report 2024
 
